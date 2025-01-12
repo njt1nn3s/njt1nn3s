@@ -1,15 +1,15 @@
 » Howdy! «
 
 
-- always C+H!!!
+• always C+H!!!
 
-- I'm usually an OC but I also cosplay a lot
+• I'm usually an OC but I also cosplay a lot
 
-- I go by any pronouns depending on my pony ^-^
+• I go by any pronouns depending on my pony ^-^
 
-- dni: pedos, transphobes, homphobes, antisemitics, etc.
+• dni: IGNORANT BIGOTS
 
-- int: literally just the opposite of up here lol 🔝
+• int: anyone else
 
 
 <!---
