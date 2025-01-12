@@ -31,6 +31,8 @@ pls dni if you're transphobic, hobophibic, racist, etc.
 
 • Soul Eater
 
+• Creepypasta
+
 • Asassination Classroom
 
 • The Disasterous Life of Saiki K
