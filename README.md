@@ -1,17 +1,13 @@
 ![IMG_7382](https://github.com/user-attachments/assets/1bb21fa2-730a-4f71-adaf-210dae64fbdc)
-» Howdy! «
+# - » Howdy! « - # 
+
+**ALWAYS C+H❕**
 
 
-• always C+H!!!
-
-• I'm usually an OC but I also cosplay a lot
-
-• I go by any pronouns depending on my pony ^-^
-
-• dni: IGNORANT BIGOTS
-
-• int: anyone else
-
+ᴀʙᴏᴜᴛ ᴍᴇ
+most of the time is cosplay but I have many ocs~
+I go by any pronouns(mostly she/her) depending on my pony ^-^
+pls dni if you're transphobic, hobophibic, racist, etc.
 
 <!---
 Sir-Mix-A-LotEnthusiast/Sir-Mix-A-LotEnthusiast is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
