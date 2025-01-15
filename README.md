@@ -15,7 +15,7 @@ most of the time is cosplay but I have many ocs~
 
 I go by any pronouns(mainly she/her) depending on my pony ^-^
 
-pls dni if you're transphobic, hobophibic, racist, etc.
+pls dni if you're a raging transphobic, hobophibic, racist, etc.
 
 ﹌﹌﹌
 
