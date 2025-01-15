@@ -7,5 +7,4 @@
 
 **ALWAYS C+H**
 
- CHECK OUT MY STRAWPAGE!
-
+ 
