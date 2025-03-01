@@ -11,7 +11,7 @@
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
-I just go by whatever name my pony is, but you can call me nj!
+I just go by whatever name my pony is, but you can call me nj/chipp
 
 Anypony *(heheh)* can interact!
 
