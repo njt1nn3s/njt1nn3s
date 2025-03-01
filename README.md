@@ -7,9 +7,10 @@
 
 **ALWAYS C+H**
 
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
 I just go by whatever name my pony is, but you can call me nj!
 
 Anypony(heheh) can interact
+
 No DNI's
