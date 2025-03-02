@@ -1,13 +1,13 @@
 ![IMG_3038](https://github.com/user-attachments/assets/b978e2cb-8dfb-4347-8251-10ee4412c462)
 
 
-༶•┈┈୨♡୧┈┈•༶
+  ༶•┈┈୨♡୧┈┈•༶
 
 ੈ✩‧₊˚Hello!*ੈ✩‧₊˚
 
 ╔═*.·:·.✧ ✦ ✧.·:·.*═╗
 
-**ALWAYS C+H**
+  **ALWAYS C+H**
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
@@ -17,8 +17,8 @@ Anypony *(heheh)* can interact!
 
 No DNI's!
 
-┌── •✧• ──┐
+┌────────────── •✧• ──────────────┐
 
 ***GO CHECK OUT MY STRAW.PAGE!!!***
 
-└── •✧• ──┘
+└────────────── •✧• ──────────────┘
