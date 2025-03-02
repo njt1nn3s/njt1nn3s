@@ -26,7 +26,7 @@ No DNI's!
 
   ༶•┈┈୨♡୧┈┈•༶
   
-${\textsf{\color{skyblue}little about me if you're curious❕}}$
+${\textsf{\color{skyblue}little about me if you're curious!!!ˏˋ°•*⁀➷}}$ 
 
 • 15
 
