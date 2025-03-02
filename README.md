@@ -12,7 +12,7 @@ ${\textsf{\color{pink} ੈ✩‧₊˚Hello!*ੈ✩‧₊˚}}$
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
-I just go by whatever name my pony is, but you can call me ${\textsf{\color{yellow}njt1nn3s!}}$
+I just go by whatever name my pony is, but you can call me ${\textsf{\color{lightyellow}njt1nn3s!}}$
 
 Anypony *(heheh)* can interact!
 
@@ -24,9 +24,10 @@ No DNI's!
 
 └──────── •✧• ────────┘
 
-  ༶•┈┈୨♡୧┈┈•༶
   
-${\textsf{\color{skyblue}little about me if you're curious!!!ˏˋ°•*⁀➷}}$ 
+  ༺｡° .ᘛ𓆩♡𓆪ᘚ. °｡༻
+  
+  ${\textsf{\color{skyblue}: ̗̀➛little about me if you're curious!!!ˏˋ°•*⁀➷}}$ 
 
 • 15
 
