@@ -11,7 +11,7 @@
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
-I just go by whatever name my pony is, but you can call me ${\textsf{\color{lightyellow}njt1nn3s!}}$
+I just go by whatever name my pony is, but you can call me ${\textsf{\color{gold}njt1nn3s!}}$
 
 Anypony *(heheh)* can interact!
 
