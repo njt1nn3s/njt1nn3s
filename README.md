@@ -1,9 +1,10 @@
+
 ![IMG_3038](https://github.com/user-attachments/assets/b978e2cb-8dfb-4347-8251-10ee4412c462)
 
+༶•┈┈୨♡୧┈┈•༶
 
-  ༶•┈┈୨♡୧┈┈•༶
+${\textsf{\color{pink} ੈ✩‧₊˚Hello!*ੈ✩‧₊˚}}$
 
-ੈ✩‧₊˚Hello!*ੈ✩‧₊˚
 
 ╔═*.·:·.✧ ✦ ✧.·:·.*═╗
 
@@ -11,7 +12,7 @@
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
-I just go by whatever name my pony is, but you can call me njt1nn3s!
+I just go by whatever name my pony is, but you can call me ${\textsf{\color{skyblue}njt1nn3s!}}$
 
 Anypony *(heheh)* can interact!
 
@@ -23,4 +24,15 @@ No DNI's!
 
 └──────── •✧• ────────┘
 
-if you aren't my friend plz do NOTTT ask abt my supporter❕
+
+little about me if you're curious❕
+
+• 15
+
+• INFP-T
+
+• chill with most everything B)
+
+• my faborite color is orange
+
+• no I will NOT help you with the build limit on your map(unless we're friends)
