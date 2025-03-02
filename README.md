@@ -3,7 +3,7 @@
 
 ༶•┈┈୨♡୧┈┈•༶
 
- ${\textsf{\color{pink} ੈ✩‧₊˚Hello!*ੈ✩‧₊˚}}$
+${\textsf{\color{pink} ੈ✩‧₊˚Hello!*ੈ✩‧₊˚}}$
 
 
 ╔═*.·:·.✧ ✦ ✧.·:·.*═╗
