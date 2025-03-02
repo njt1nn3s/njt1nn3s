@@ -22,3 +22,5 @@ No DNI's!
 ***GO CHECK OUT MY STRAW.PAGE!!!***
 
 └──────── •✧• ────────┘
+
+if you aren't my friend plz do NOTTT ask abt my supporter❕
