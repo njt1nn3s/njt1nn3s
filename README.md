@@ -37,3 +37,11 @@ No DNI's!
 • my faborite color is orange
 
 • no I will NOT help you with the build limit on your map(unless we're friends)
+
+
+
+🧩💛❤️💚💙🧩
+
+${\textsf{\color{gold}AUTISM AWARENESS!!!}}$
+
+Autism is not some quirky quality. It's not to be used as an insult. It comes in all different severities. It has forever changed me and my families life, having a sibling with severe autism is not fun, silly, quirky, or whatever else **some** people think it is. People under this spectrum are not creatures, they are HUMAN. If you treat this disorder as any of the the things I've stated it's not, stop for a minute and rethink your judgements, because I should not feel like I have to say any of this.
