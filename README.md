@@ -3,7 +3,7 @@
 
 ༶•┈┈୨♡୧┈┈•༶
 
-ੈ✩‧₊˚ ${\textsf{\color{gold}ʜᴇʟʟᴏ!}}$ *ੈ✩‧₊˚
+ੈ✩‧₊˚ ${\Huge\texttt{ʜᴇʟʟᴏ!}}}$ *ੈ✩‧₊˚
 
 ╔═*.·:·.✧ ✦ ✧.·:·.*═╗
 
@@ -11,7 +11,7 @@
 
 ╚═*.·:·.✧ ✦ ✧.·:·.*═╝
 
-I just go by whatever name my pony is, but you can call me ${\textsf{\color{gold}nj!}}$
+I just go by whatever name my pony is, but you can call me nj!
 
 Anypony *(heheh)* can interact!
 
@@ -26,7 +26,7 @@ No DNI's!
   
   ༺｡° .ᘛ𓆩♡𓆪ᘚ. °｡༻
   
-: ̗̀➛ ${\textsf{\color{gold}ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ ɪғ ʏᴏᴜ'ʀᴇ ᴄᴜʀɪᴏᴜs!!!}}$ ˏˋ°•*⁀➷
+: ̗̀➛ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ ɪғ ʏᴏᴜ'ʀᴇ ᴄᴜʀɪᴏᴜs!!!ˏˋ°•*⁀➷
   
 • 15 yrs
 
@@ -42,6 +42,6 @@ No DNI's!
 
 🧩💛❤️💚💙🧩
 
-${\textsf{\color{gold}AUTISM AWARENESS!!!}}$
+AUTISM AWARENESS!!!
 
 Autism is not some quirky quality. It's not to be used as an insult. It comes in all different severities. It has forever changed me and my families life, having a sibling with severe autism is not fun, silly, quirky, or whatever else **some** people think it is. People under this spectrum are not creatures, they are HUMAN. If you treat this disorder as any of the the things I've stated it's not, stop for a minute and rethink your judgements, because I should not feel like I have to say any of this.
