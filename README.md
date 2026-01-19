@@ -36,8 +36,6 @@ No DNI's!
 
 • my faborite color is orange
 
-• no I will NOT help you with the build limit on your map(unless we're friends)
-
 
 
 🧩💛❤️💚💙🧩
